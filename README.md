@@ -1,6 +1,6 @@
 # FPoH-Public
 
-## FUTALITY: [You are what you TAKE](/Futality-Brand.html)
+## FUTALITY: [You are what you TAKE](/Futality-Brand2.html)
 
 ## Turnflow: [FPoH Turnflow](/FPoH-Turnflow-Multi-v7.html)
 
